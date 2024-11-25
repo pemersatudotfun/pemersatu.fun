@@ -1,0 +1,215 @@
+<!DOCTYPE html>
+<html lang="id" itemscope itemtype="http://schema.org/WebPage">
+<head>
+    <meta charset="UTF-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+    <meta http-equiv="X-UA-Compatible" content="ie=edge">
+    <meta name="description" content="Nonton PEMERSATU.FUN adalah situs penyedia bokep lucah terbaik." />
+    <meta name="keywords" content="pemersatu.fun, pemersatudotfun, pemersatu, bokep indo, indo, viral indo, ometv, ome tv, bokep ometv, bokep ome tv, bokep hijab, bokep abg, bokep sma" />
+    <meta name="publisher" content="PEMERSATUDOTFUN">
+    <meta name="distribution" content="global">
+    <meta http-equiv="copyright" content="2024 PEMERSATUDOTFUN">
+    <meta name="webcrawlers" content="all">
+    <meta name="rating" content="general">
+    <meta name="spiders" content="all">
+    <meta name="copyright" content="PEMERSATUDOTFUN">
+    <meta name="Slurp" content="all">
+    <meta name="robots" content="index, follow, max-image-preview:large, max-snippet:-1, max-video-preview:-1" />
+    <title>Pemersatu.fun Bokep Lucah Viral Malay Indo</title>
+    <script src="https://cdnjs.cloudflare.com/ajax/libs/toastr.js/latest/toastr.min.js"></script>
+<style>
+      @keyframes blink {
+            0% {opacity: 1;}
+            50% {opacity: 0;}
+            100% {opacity: 1;}
+        }
+        .blinking {
+            animation: blink 1s infinite;
+            color: red;
+            font-weight: bold;
+        }
+</style>
+     <style>
+ul.myUL {
+  display: inline-block;
+  text-align: left;
+}
+li {
+    margin-bottom: 10px; /* Memberikan jarak bawah antar item */
+}
+
+a {
+    display: inline-block;
+    
+    color: blue; /* Warna teks */
+    border: 1px solid #ccc; /* Memberikan border */
+    border-radius: 5px; /* Membulatkan sudut */
+    transition: background-color 0.3s ease; /* Animasi saat hover */
+}
+a:hover {
+    background-color: #f0f0f0; /* Warna background saat hover */
+}
+	    body {
+    
+    justify-content: center;
+    align-items: center;
+    height: 100vh;
+    background-color: #f0f0f0;
+    margin: 0;
+    padding: 20px;
+}
+
+.paper {
+    width: 78%;
+    max-width: 598px;
+    padding: 30px;
+    box-shadow: 0 9px 44px rgba(0, 0, 0, 0.1);
+    border-radius: 16px;
+    margin: 12px;
+    background-image: url(/kertas.jpg);
+    background-size: cover;
+    background-blend-mode: multiply;
+    position: relative;
+    overflow: hidden;
+}
+
+.paper::before, .paper::after {
+    
+    position: absolute;
+    width: 100%;
+    height: 20px;
+    background: linear-gradient(to right, transparent 0%, #fdf5e6 50%, transparent 100%);
+    top: -10px;
+    left: 0;
+    
+}
+
+.paper::after {
+    top: auto;
+    bottom: -10px;
+    
+}
+
+.paper p {
+    margin: 0;
+    font-family: 'Times New Roman', Times, serif;
+    line-height: 1.6;
+    color: #5a5a5a; /* Warna teks yang lebih kusam */
+}
+/* Style for the dropdown */
+#dropdown {
+  display: none;
+  position: fixed;
+  top: 50%;
+  left: 50%;
+  transform: translate(-50%, -50%);
+  background-color: #f9f9f9;
+  min-width: 160px;
+  box-shadow: 0px 8px 16px 0px rgba(0,0,0,0.2);
+  z-index: 1;
+}
+
+#dropdown a {
+  color: black;
+  padding: 12px 16px;
+  text-decoration: none;
+  display: block;
+}
+
+#dropdown a:hover {
+  background-color: #f1f1f1;
+}
+
+</style>
+ 
+</head>
+<body itemscope itemtype="http://schema.org/WebPage">
+<main><center>
+<div class="paper" itemscope itemtype="http://schema.org/Organization">
+    <h1 itemprop="name">PEMERSATU.FUN - WARNING</h1>
+    <strong>This website pemersatu.fun contains age-restricted materials.</strong><br />If you are under the age of 18 years, or under the age of majority in the location from where you are accessing this website you do not have authorization or permission to enter this website or access any of its materials. If you are over the age of 18 years or over the age of majority in the location from where you are accessing this website by entering the website, you hereby agree to comply with all the Terms and Conditions. You also acknowledge and agree that you are not offended by nudity and explicit depictions of sexual activity. By clicking on the "Enter" button, and by entering this website you agree with all the above and certify under penalty of perjury that you are an adult.<br /><br />All models appearing on this website are 18 years or older. By entering this site you swear that you are of legal age in your area to view adult material and that you wish to view such material.
+    <h2 itemprop="url"><a href="#" id="enter-site" target="_blank" rel="dofollow">ENTER SITE</a> | 
+    <a href="https://wikipedia.com" rel="nofollow">EXIT</a></h2>
+    <p>gunakan VPN free tercepat dari <a href="https://one.one.one.one/id-ID/" target="_blank">1.1.1.1</a> demi kenyamanan anda!</p>
+
+    <div id="dropdown" class="dropdown-content">
+	   
+        <a href="https://video.pemersatu.org" target="_blank" rel="dofollow"><strong>&#10003; PEMERSATU.FUN</strong><span class="blinking"> BEST &#10003;</span></a>
+	    <a href=" https://216.219.94.112" target="_blank" rel="dofollow"><strong>&#10003; BOKEP INDO</strong><span class="blinking"> BEST &#10003;</span></a>
+        <a href="https://video.pemersatufun.com" target="_blank" rel="dofollow"><strong>&#10003; VIDEO.PEMERSATUFUN.COM</strong><span class="blinking"> BEST &#10003;</span></a>
+        <a href="https://video.pemersatudotfun.com" target="_blank">&#10003; BOKEP LUCAH MALAY INDO<span class="blinking"> COMPLETE</span></a>
+        <a href="https://pemersatufun.com" target="_blank">&#10003; <strong>PEMERSATUFUN.COM</strong> <span class="blinking"> NEW!</span></a>    
+        <a href="https://bokep.pemersatufun.com" target="_blank">&#10003; <strong>BOKEP.PEMERSATUFUN.COM</strong> <span class="blinking"> NEW!</span></a>
+        <a href="https://hijab.pemersatu.top" target="_blank"><span class="blinking">NEW </span>&#10003; HIJAB SANGE<span class="blinking"> NEW</span></a>
+        <a href="https://dood.pemersatufun.site" target="_blank" rel="noopener">&#10003; FREE LUCAH BOKEP V2<span class="blinking"> USER FRIENDLY</span></a>
+    </div>
+</div>
+
+<div class="paper">
+    <p><strong>Laman web kami berbaloi untuk disertai jika anda sudi menerima syarat di atas, 100% Free :</strong></p><br />
+    <h2>BEST STREAMING VIDS:</h2><strong>
+    <ul class="myUL">
+        <li itemprop="url"><a href="https://video.pemersatu.org" target="_blank" rel="dofollow">&#10003; PEMERSATU.FUN<span class="blinking"> BEST &#10003;</span></a></li>
+	<li itemprop="url"><a href="https://216.219.94.112" target="_blank" rel="dofollow">&#10003; BOKEP INDO<span class="blinking"> BEST &#10003;</span></a></li>    
+        <li itemprop="url"><a href="https://video.pemersatufun.com" target="_blank" rel="dofollow">&#10003; VIDEO PEMERSATUFUN COM<span class="blinking"> BEST &#10003;</span></a></li>
+        <li itemprop="url"><a href="https://hijab.pemersatu.top" target="_blank"><span class="blinking">NEW </span>&#10003; HIJAB SANGE<span class="blinking"> NEW</span></a></li>
+        <li itemprop="url"><a href="https://pemersatufun.com" target="_blank">&#10003; <strong>PEMERSATUFUN.COM</strong> <span class="blinking"> NEW!</span></a></li>
+        <li itemprop="url"><a href="https://video.pemersatudotfun.com" target="_blank">&#10003; BOKEP LUCAH MALAY INDO<span class="blinking"> COMPLETE</span></a></li>
+        <li itemprop="url"><a href="https://bokep.pemersatufun.com" target="_blank">&#10003; <strong>BOKEP.PEMERSATUFUN.COM</strong> <span class="blinking"> NEW!</span></a></li>
+        <li itemprop="url"><a href="https://dood.pemersatufun.site" target="_blank" rel="noopener">&#10003; FREE LUCAH BOKEP V2<span class="blinking"> USER FRIENDLY</span></a></li>
+    </ul>
+    </strong><BR />
+    <h2>BEST READING HENTAI MANGA:</h2><strong>
+    <ul class="myUL">
+        <li itemprop="url"><a href="https://manga.pemersatu.org" target="_blank" rel="noopener"><span class="blinking">NEW </span>FREE MANGA HENTAI KOMIK BAHASA MELAYU<span class="blinking"> NEW</span></a></li>
+        <li itemprop="url"><a href="https://manga.pemersatu.top" target="_blank"><span class="blinking">NEW </span>Complete Manga Bahasa Melayu<span class="blinking"> NEW MORE CONTENTS</span></a></li>
+        <li itemprop="url"><a href="https://dood.pemersatufun.site" target="_blank" rel="noopener">DOOD.PEMERSATUFUN.SITE<span class="blinking"> MORE USER FRIENDLY</span></a></li>
+    </ul>
+    <strong>
+    <p><strong><h2>Kalau dah dewasa senang nak buka website PEMERSATU.FUN Kandungan Viral Melayu Viral Terkini kalau kena block dan selesa untuk dinikmati :</h2></strong></p>
+    <ul class="myUL">
+        <li>install Best free fastest vpn <a href="https://one.one.one.one/id-ID/" target="_blank">klik di sini</a> (windows, apple, android, Mac) klik ini untuk install <a href="https://one.one.one.one/id-ID/" target="_blank">BEST FREE VPN</a></li>
+        <li>gunakan mode 1.1.1.1 pada settings VPN dan hindari penggunaan wrap kecuali masih terkena. blocked.</li>
+        <li>sentiasa guna <strong>google chrome</strong> dan <strong>matikan sambungan adblock</strong> jika dipasang</li>
+    </ul>
+    <p><strong>Kawalan Ibu Bapa dan cara memastikan anak anda selamat daripada jenis tapak ini</strong></p>
+    <p><small>Tidak salah melihat pornografi dalam persekitaran yang sihat dan selamat. Tetapi berhati-hati mesti diberi perhatian supaya golongan muda dan tidak bersalah tidak dapat menemuinya dalam talian.</small></p>
+    <ul class="myUL">
+        <li><a class="link" href="https://family.norton.com/" target="_blank" rel="noopener">Norton Family</a></li>
+        <li><a class="link" href="https://www.mobicip.com/" target="_blank" rel="noopener">Mobicip</a></li>
+        <li><a class="link" href="https://www.qustodio.com/" target="_blank" rel="noopener">Qustodio</a></li>
+        <li><a class="link" href="https://www.bark.us/" target="_blank" rel="noopener">Bark</a></li>
+        <li><a class="link" href="https://www.netnanny.com/" target="_blank" rel="noopener">Net Nanny</a></li>
+        <li><a class="link" href="https://www.sentrypc.com/" target="_blank" rel="noopener">SentryPC</a></li>
+    </ul>
+</div></center>
+</main>
+
+<script>(function(){function c(){/* Script yang telah ada di sini */}})();</script>
+<script>
+// Script JavaScript untuk mengendalikan dropdown
+document.getElementById("enter-site").addEventListener("click", function(event) {
+    event.preventDefault();
+    var dropdown = document.getElementById("dropdown");
+    if (dropdown.style.display === "block") {
+        dropdown.style.display = "none";
+    } else {
+        dropdown.style.display = "block";
+    }
+});
+
+// Close the dropdown if the user clicks outside of it
+window.onclick = function(event) {
+    if (!event.target.matches('#enter-site')) {
+        var dropdowns = document.getElementsByClassName("dropdown-content");
+        for (var i = 0; i < dropdowns.length; i++) {
+            var openDropdown = dropdowns[i];
+            if (openDropdown.style.display === "block") {
+                openDropdown.style.display = "none";
+            }
+        }
+    }
+}
+</script>
+</body>
+</html>
